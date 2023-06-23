@@ -6,4 +6,4 @@
 
 3-) Hiçbir çekinme duymadan [Discord](https://discord.gg/TE42ArfHXW) sunucusuna gelip soru sorabilirsiniz.
 
-Not: Bu maddeler herhangi bir gün her an değiştirilebilir.
+Not: Bu maddeler gerçekleşen olaylara göre değişiklik gösterebilir.
